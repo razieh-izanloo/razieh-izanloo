@@ -5,7 +5,7 @@
 - 🚀 Always learning new things and improving my skills
 
 ### Connect with me:
-- 📧 razieh.izanloo@gmail.com
+- 📧 razieh.izanloo755@gmail.com
 - <img width="15" height="15" alt="image" src="https://github.com/user-attachments/assets/32aa420b-2960-4226-be3b-f5618bf54b23" /> [razieh-izanloo](https://www.linkedin.com/in/razieh-izanloo)
 
 ### 💡 Languages and Tools:
